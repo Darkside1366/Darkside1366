@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Darkside1366
+- burada sizinle yepyeni şeyler yapacağım
+- şuanda öğrenci sayılırım
